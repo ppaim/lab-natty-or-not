@@ -20,4 +20,4 @@ muito conteúdo útil para distribuir informação nas redes sociais.
 
  
 ## 💭 Reflexão (Opcional)
-É muito validar sempre a informação para que antes de qualquer ação.
+É muito importate validar sempre a informação antes de realizar qualquer ação, no caso do Score de Crédito são dicas financeiras de controle pessoal.
